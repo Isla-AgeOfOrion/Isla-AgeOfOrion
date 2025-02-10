@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Isla-AgeOfOrion
 - 👀 I’m interested in ... Societal Energy Autonomy, Simple Solutions, Built Evolution Horizons, Astro-Meteorology
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ... Solar Module Combination
+- 💞️ I’m looking to collaborate on ... SAM Solar Module Combination
 - 📫 How to reach me ... Up-Coming
 - 😄 Pronouns: ... Horizon Wrangler
 - ⚡ Fun fact: ... By mid-night Winter Solstice, we're now in the Age Of Orion - An archer walks into a pub... ?
